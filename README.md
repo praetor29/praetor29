@@ -1,1 +1,1 @@
-![Hubble/JWST](https://i.imgur.com/GSLOWvv.jpeg)
+![Hubble/JWST](https://i.imgur.com/EOpTlbu.png)
