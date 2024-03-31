@@ -1,1 +1,1 @@
-![Cosmic Cliffs](https://i.imgur.com/5GiglB3.jpg)
+![Hubble/JWST](https://i.imgur.com/GSLOWvv.jpeg)
